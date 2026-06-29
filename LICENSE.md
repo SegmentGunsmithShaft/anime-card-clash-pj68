@@ -1,4 +1,4 @@
-
+no-ban Script for anime card clash offers the most advanced anime card clash Script, with auto-heal and anti-ban. Perfect for dominating any match.
 
 
 
